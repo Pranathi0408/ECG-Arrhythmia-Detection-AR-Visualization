@@ -110,7 +110,7 @@ B.Tech – Computer Science Engineering (Data Science)
 
 GitHub: https://github.com/Pranathi0408
 
-LinkedIn: Add your LinkedIn profile URL here
+LinkedIn: https://www.linkedin.com/in/pranathi0408/
 
 ---
 
